@@ -4,4 +4,4 @@
 - Polyamoureux
 - Martiniquais
 - Passionné de rap
-- **veut sortir avec des filles de 18 ans.**
+- **a tenté de rencontrer des femmes âgées de 18 ans.**
