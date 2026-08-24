@@ -4,4 +4,5 @@
 - Polyamoureux
 - Martiniquais
 - Passionné de rap
-- **a tenté de rencontrer des femmes âgées de 18 ans.**
+- Vit chez son père
+- **A tenté de rencontrer des femmes âgées de 18 ans.**
